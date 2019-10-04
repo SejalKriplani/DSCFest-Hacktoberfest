@@ -6,5 +6,6 @@ Farhan Kapadia<br/>
 Harsh Kapadia <br/>
 Mohit S Punjabi <br/>
 DSC Vivekanand <br/>
-Akanksha<br/>
-DSC Workshop<br/>
+Akanksha</br>
+Akanksha Bhasin</br>
+Sejal Vivekanand<br/>
